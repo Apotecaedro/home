@@ -8,6 +8,6 @@ Help us continue developing games by supporting us on Patreon!
 
 ## Contact Information
 
-If you have any questions, suggestions, or would like to get in touch, please send an email to [contact@games_company.com](mailto:contact@games_company.com).
+If you have any questions, suggestions, or would like to get in touch, please send an email to [apotecaedro@gmail.com](mailto:apotecaedro@gmail.com).
 
 We're thrilled to have you as part of our community!
