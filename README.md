@@ -4,7 +4,7 @@
 
 Help us continue developing games by supporting us on Patreon!
 
-[![Support Us on Patreon](078iRuDrYABM6R9lDYPUACI-11.webp))](link_to_patreon)
+[![Support Us on Patreon](078iRuDrYABM6R9lDYPUACI-11.webp)](link_to_patreon)
 
 ## Contact Information
 
